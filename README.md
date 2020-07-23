@@ -1,7 +1,7 @@
 #  XiaoZhan.SB.Backup
 
 ![](https://xiaozhan.sb/logo.png)<br>
-###### All telegra.ph Archive is From [InstantviewBot](t.me/CorsaBot) 
+###### All telegra.ph Archive is From [InstantviewBot](https://t.me/CorsaBot) 
 
 肖战，网络红人，1991 年生，现年 29 岁。在 2019 年播出的耽美小说改编电视剧《陈情令》中，饰演魏无羡一角，与剧中角色蓝忘机组成同性暧昧配对，获得广泛关注。
 
