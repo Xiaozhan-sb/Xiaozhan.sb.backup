@@ -28,6 +28,7 @@ XiaoZhan.SB 中，Xiao Zhan 为肖战的汉语拼音，而 SB 是南太平洋岛
 ## 事业成就
 
 在肖战粉丝举报事件后，被外界普遍认为是肖战复出之作的数字单曲《[光点](https://i.y.qq.com/v8/playsong.html?songid=260388219)》[上线第 93 小时销售额破亿](https://telegra.ph/%E5%8D%8E%E8%AF%AD%E9%9F%B3%E4%B9%90%E5%8E%86%E5%8F%B2%E7%AC%AC%E4%B8%80%E8%82%96%E6%88%98%E6%96%B0%E6%AD%8C%E5%85%89%E7%82%B9%E9%94%80%E5%94%AE%E9%A2%9D%E8%BF%87%E4%BA%BF-07-23)，以[全球第二的业绩](https://en.wikipedia.org/wiki/List_of_best-selling_singles#15_million_digital_copies_or_more)力压 Coldplay、Adele 等前辈，成为华语乐坛新骄傲。
+对于肖战远超周杰伦、华晨宇等职业歌手的市场号召力，《光点》[在音乐性上受到质疑](https://telegra.ph/%E8%82%96%E6%88%98%E5%85%89%E7%82%B9%E9%94%80%E9%87%8F%E6%9A%B4%E6%B6%A8%E5%92%8C%E8%AF%84%E5%88%86%E6%9A%B4%E8%B7%8C%E7%9A%84%E8%83%8C%E5%90%8E%E8%BF%99%E6%98%AF%E4%B8%80%E5%9C%BA%E6%83%85%E7%BB%AA%E5%8C%96%E7%9A%84%E5%8D%9A%E5%BC%88-07-27)，并被曝出[粉丝呼吁大量购买](https://telegra.ph/%E8%82%96%E6%88%98%E6%96%B0%E6%AD%8C%E7%83%AD%E5%8D%967500%E4%B8%87%E5%8D%B4%E6%83%B9%E4%BA%89%E8%AE%AE%E8%A2%AB%E7%88%86%E5%A4%A7%E7%B2%89%E5%BC%BA%E9%94%80%E4%BA%BA%E4%BA%BA%E6%9C%80%E5%B0%91105%E5%BC%A0%E5%B7%A5%E4%BD%9C%E5%AE%A4%E5%91%BC%E5%90%81%E7%90%86%E6%80%A7%E8%B4%AD%E4%B9%B0-%E4%B8%8A%E6%B8%B8%E6%96%B0%E9%97%BB-%E6%B1%87%E8%81%9A%E5%90%91%E4%B8%8A%E7%9A%84%E5%8A%9B%E9%87%8F-07-27)、[催促在校学生购买](https://www.zhihu.com/question/390436167/answer/1180312462)、[称为肖战消费是赎罪](https://telegra.ph/%E8%B5%8E%E7%BD%AA%E5%BC%8F%E8%BF%BD%E6%98%9F%E6%99%92%E8%AE%A2%E5%8D%95%E8%B5%8E%E7%BD%AA%E5%88%B8%E8%BF%BD%E6%98%9F%E4%B8%8D%E6%98%AF%E9%82%AA%E6%95%99%E8%AF%B7%E5%87%80%E5%8C%96%E7%B2%89%E5%9C%88-07-27)等细节。
 
 ## 团队操作
 
@@ -49,6 +50,10 @@ XiaoZhan.SB 中，Xiao Zhan 为肖战的汉语拼音，而 SB 是南太平洋岛
 
 - 知名国际开源读物托管平台 AO3 因存有一篇将肖战描绘为性别认知障碍发廊小姐的文章，被粉丝举报涉黄，随后该网站被[防火长城](https://zh.wikipedia.org/wiki/%E9%98%B2%E7%81%AB%E9%95%BF%E5%9F%8E)屏蔽
 - 在李文亮医生的病逝轰动全国时，因其微博提及「肖战也太帅了吧，绿光好听」，传播文章《[李文亮，一个喜欢肖战的大男孩](https://mp.weixin.qq.com/s?src=11&timestamp=1595547709&ver=2479&signature=14Gsdxnct-qR*2FyTLUIiMZJ-b5WNkeBTL1MvKmFdoQa4mS2iSXT*lST6Lb5tuPi6gsnZFRd-8nc7e77u6hHFs-WxDbO4LYkiUGAIl4KPTIJCnMrJIuW9XySLy-bAk*W&new=1)》
+- 在《检察日报》纸媒发表文章五评肖战事件后，粉丝发表文章《[十问检察日报](https://telegra.ph/%E5%A6%82%E4%BD%95%E8%AF%84%E4%BB%B7%E6%8B%BF%E4%BB%80%E4%B9%88%E6%8B%AF%E6%95%91%E4%BD%A0%E6%88%91%E7%9A%84%E4%B8%89%E8%A7%82%E5%8D%81%E9%97%AE%E6%A3%80%E5%AF%9F%E6%97%A5%E6%8A%A5%E4%B8%80%E6%96%87-07-27)》对其编辑提出「博眼球」、「蹭热度」、「完成 KPI」、「避重就轻」、「发肖难财」等指控
+- 微博用户[@真的成杰思](https://weibo.com/chengjiesi)发表文章《[227，是复仇者联盟还是废青大本营？](https://weibo.com/ttarticle/p/show?id=2309404480685132873872)》（已删除）指控抵制方为港独青年获得上万次转发
+- 微博文学类订阅账号[@亚非文学bot](https://weibo.com/u/6006497029)因其转发投稿用户名为「赞姨娇俏」，被粉丝认为对肖战（赞）使用了蔑视性称呼，在骂声中发表[致歉](https://weibo.com/6006497029/IAPF4dDDa)并宣布[退出微博](https://weibo.com/6006497029/IBb6FmnpH)
+- 在同人文化漫展 [CP26](https://www.allcpp.cn/allcpp/event/event.do?event=865) 中，有摊位因粉丝举报同人文学托管平台 AO3 而[悬挂横幅、锦旗](https://s.weibo.com/weibo?q=%23CP26横幅%23)暗示抵制肖战及其粉丝，该摊位物料后因粉丝举报[被保安要求撤下](https://weibo.com/6046921529/JcPihzWHr)
 - [系统组织、诱导粉丝（包括未成年人）重复购买](https://telegra.ph/%E8%82%96%E6%88%98%E7%B2%89%E4%B8%9D%E4%BB%AC%E8%BF%BD%E6%98%9F%E4%B8%8D%E8%A6%81%E8%A2%AB%E6%B4%97%E8%84%91%E4%B9%B0%E4%B9%B0%E5%BA%94%E8%AF%A5%E9%87%8F%E5%8A%9B%E8%80%8C%E8%A1%8C%E7%90%86%E6%80%A7%E5%9C%B0%E5%8E%BB%E6%B6%88%E8%B4%B9-07-23)肖战数字专辑
 - [教师应援事件](https://m.weibo.cn/status/4504152560608508?)
 - [更多](https://zh.wikipedia.org/wiki/肖战事件)
