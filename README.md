@@ -25,6 +25,8 @@ XiaoZhan.SB 中，Xiao Zhan 为肖战的汉语拼音，而 SB 是南太平洋岛
 
 —— 新浪娱乐采访，2020.6.18
 
+更多：![肖战语录（粉丝批注版）](https://pic4.zhimg.com/80/v2-83a8ab1522ca6de148f6baa5aab456b3.jpg)
+
 ## 事业成就
 
 在肖战粉丝举报事件后，被外界普遍认为是肖战复出之作的数字单曲《[光点](https://i.y.qq.com/v8/playsong.html?songid=260388219)》[上线第 93 小时销售额破亿](https://telegra.ph/%E5%8D%8E%E8%AF%AD%E9%9F%B3%E4%B9%90%E5%8E%86%E5%8F%B2%E7%AC%AC%E4%B8%80%E8%82%96%E6%88%98%E6%96%B0%E6%AD%8C%E5%85%89%E7%82%B9%E9%94%80%E5%94%AE%E9%A2%9D%E8%BF%87%E4%BA%BF-07-23)，以[全球第二的业绩](https://en.wikipedia.org/wiki/List_of_best-selling_singles#15_million_digital_copies_or_more)力压 Coldplay、Adele 等前辈，成为华语乐坛新骄傲。
@@ -48,7 +50,7 @@ XiaoZhan.SB 中，Xiao Zhan 为肖战的汉语拼音，而 SB 是南太平洋岛
 
 ## 粉丝行动
 
-- 知名国际开源读物托管平台 AO3 因存有一篇将肖战描绘为性别认知障碍发廊小姐的文章，被粉丝举报涉黄，随后该网站被[防火长城](https://zh.wikipedia.org/wiki/%E9%98%B2%E7%81%AB%E9%95%BF%E5%9F%8E)屏蔽
+- 知名国际开源读物托管平台 [AO3](https://archiveofourown.org/) 因存有[一篇将肖战描绘为性别认知障碍发廊小姐的文章](https://archiveofourown.org/works/22478632)（作者已按网站要求标注分级对未成年人提出警告），被粉丝举报涉黄，随后该网站被[防火长城](https://zh.wikipedia.org/wiki/%E9%98%B2%E7%81%AB%E9%95%BF%E5%9F%8E)屏蔽
 - 在李文亮医生的病逝轰动全国时，因其微博提及「肖战也太帅了吧，绿光好听」，传播文章《[李文亮，一个喜欢肖战的大男孩](https://mp.weixin.qq.com/s?src=11&timestamp=1595547709&ver=2479&signature=14Gsdxnct-qR*2FyTLUIiMZJ-b5WNkeBTL1MvKmFdoQa4mS2iSXT*lST6Lb5tuPi6gsnZFRd-8nc7e77u6hHFs-WxDbO4LYkiUGAIl4KPTIJCnMrJIuW9XySLy-bAk*W&new=1)》
 - 在《检察日报》纸媒发表文章五评肖战事件后，粉丝发表文章《[十问检察日报](https://telegra.ph/%E5%A6%82%E4%BD%95%E8%AF%84%E4%BB%B7%E6%8B%BF%E4%BB%80%E4%B9%88%E6%8B%AF%E6%95%91%E4%BD%A0%E6%88%91%E7%9A%84%E4%B8%89%E8%A7%82%E5%8D%81%E9%97%AE%E6%A3%80%E5%AF%9F%E6%97%A5%E6%8A%A5%E4%B8%80%E6%96%87-07-27)》对其编辑提出「博眼球」、「蹭热度」、「完成 KPI」、「避重就轻」、「发肖难财」等指控
 - 微博用户[@真的成杰思](https://weibo.com/chengjiesi)发表文章《[227，是复仇者联盟还是废青大本营？](https://weibo.com/ttarticle/p/show?id=2309404480685132873872)》（已删除）指控抵制方为港独青年获得上万次转发
