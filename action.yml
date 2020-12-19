@@ -1,0 +1,8 @@
+name: duty-machine-action
+description: 'save web article as issue'
+runs:
+  using: 'docker'
+  image: 'Dockerfile'
+branding:
+  icon: 'bookmark'  
+  color: 'gray-dark'
