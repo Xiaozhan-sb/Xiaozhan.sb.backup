@@ -1,3 +1,5 @@
+# 原网站已经关闭，感谢废虾做出的贡献。
+
 #  XiaoZhan.SB.Backup
 
 ![](https://xiaozhan.sb/logo.png)<br>
