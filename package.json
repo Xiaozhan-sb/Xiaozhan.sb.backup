@@ -22,7 +22,7 @@
   "dependencies": {
     "@octokit/rest": "^17.11.0",
     "dotenv": "^8.2.0",
-    "jsdom": "^16.2.2",
+    "jsdom": "^16.5.0",
     "moment": "^2.27.0",
     "node-fetch": "^2.6.1"
   },
